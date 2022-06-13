@@ -1,1 +1,1 @@
-# prueba DE QE SOY HUMANO
+# prueba DE QUE SOY HUMANO
